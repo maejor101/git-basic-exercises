@@ -1,1 +1,1 @@
-1. why is the sky blue and not trasparent?
+1. -----why is the sky blue and not trasparent?---------
